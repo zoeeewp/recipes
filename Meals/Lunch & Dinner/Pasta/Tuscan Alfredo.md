@@ -6,16 +6,16 @@
 > 
 >    **Ingredients** 
 >    - Fresh ground salt
->     - Fresh ground pepper
->     - Sage
->     - Garlic Powder
+>    - Fresh ground pepper
+>    - Sage
+>    - Garlic Powder
 > 
 > **Instructions** 
- > - Crush and mix spices/herbs with a pestle and mortar. 
- > - Cut chicken breasts to whatever size you want. I cut them to the size of
- > my 2nd knuckle on my middle finger. 
- > - Once cut, add to a mixing bowl, slowly add spice mix while stirring the chicken. 
- > - Once spices are evenly distributed place in a slow cooker for 6 hours, stirring occasionally.
+> - Crush and mix spices/herbs with a pestle and mortar. 
+> - Cut chicken breasts to whatever size you want. I cut them to the size of
+> my 2nd knuckle on my middle finger. 
+> - Once cut, add to a mixing bowl, slowly add spice mix while stirring the chicken. 
+> - Once spices are evenly distributed place in a slow cooker for 6 hours, stirring occasionally.
 
 Once you hit the five hour mark on the chicken, you will want to start to make your sauce.
 
