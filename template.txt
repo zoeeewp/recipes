@@ -1,8 +1,12 @@
------INGREDIENTS-----
---component1--
+**Recipe name**
+*All herbs and spices are to taste. I did not measure these when making it.*
 
---component2--
+*Notes*
 
-
------INSTRUCTIONS-----
-oven temp   F
+> ***Item***
+> 
+>    **Ingredients** 
+>    - 
+> 
+> **Instructions** 
+> - 
