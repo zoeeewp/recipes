@@ -58,4 +58,4 @@ Now we will make the tortillas.
 > - Once butter is melted and onions have carmalized, add 1/2 cup of flour and stir until it thickens.
 > - Add roux to pot with soup in it.
 
-Server the soup with a diced avocado, dairy based cheese or dairy free cheese, and tortilla strips.
+Serve the soup with a diced avocado, dairy based cheese or dairy free cheese, and tortilla strips.
