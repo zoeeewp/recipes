@@ -16,23 +16,22 @@
 > my 2nd knuckle on my middle finger. 
 > - Once cut, add to a mixing bowl, slowly add spice mix while stirring the chicken. 
 > - Once spices are evenly distributed place in a slow cooker for 6 hours, stirring occasionally.
-
-Once you hit the five hour mark on the chicken, you will want to start to make your sauce.
+> - Once you hit the five hour mark on the chicken, you will want to start to make your sauce.
 
 > ***Sauce Recipe***
 > 
 > **Ingredients**
-> - 10 tbsp butter
-> - 3 cups of heavy cream
-> - 1 ½ cups of gruyere (preferably sea salt gruyere)
-> - 1 ½ cups of mozzarella
+> - 2 1/4 cups of soy milk
+> - 4 tbsp dairy free butter (I prefer the Miyoko's brand)
+> - 1/2 cup of olive oil
+> - 2 1/4 cups of dairy free mozzarella. I prefer soy for this recipe, you can experiment with any dairy free cheese, but just word of warning, some melt better than others.
 > - Thai basil
 > - Sweet basil
 > - Minced garlic to taste
 > 
 > **Instructions**
 >
-> - Add butter and heavy cream to a medium sauce pan and whisk until butter is melted.
-> - Add gruyere and mozzarella, simmer, and whisk until the cheese is melted. 
-> - Add garlic and thai basil, mix.
-> - When ready to serve, sprinkle sweet basil on top.
+> - Blend your soy milk and olive oil until smooth. Once smooth, add to a medium sauce pan.
+> - Add the butter to the sauce pan and whisk until the butter is melted.
+> - Add the mozzarella, simmer, and whisk until the cheese is melted.
+> - Add garlic, thai basil, and sweet basil into the pot, mix.
