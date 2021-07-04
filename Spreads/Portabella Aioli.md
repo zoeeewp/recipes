@@ -11,6 +11,7 @@
 > - Garlic
 > - Olive oil
 > - White Truffle Oil (optional)
+
 > **Instructions** 
 > - Saute mushrooms in a pan
 > - Add mushrooms into a blender with garlic, dijon mustard, truffle oil, horseradish, and mayo.
