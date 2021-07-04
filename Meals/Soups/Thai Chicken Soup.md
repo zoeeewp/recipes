@@ -3,8 +3,7 @@
 
 *Notes*
 
-> 
->    **Ingredients** 
+> **Ingredients** 
 >    - Rice noodles
 >    - Coconut Milk - 1 quart
 >    - Ginger
@@ -14,6 +13,7 @@
 >    - Olive Oil
 >    - Chicken Breast or Ahi Tuna
 >    - Cilantro
+
 > **Instructions** 
 > - Add olive oil into stock pot. Once hot, add in minced garlic and thinly sliced shallots.
 > - Once sauteed, add in coconut milk. Whisk, add in green curry paste.
