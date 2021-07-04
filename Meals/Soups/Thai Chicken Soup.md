@@ -1,4 +1,4 @@
-**Recipe name**
+**Thai Chicken Soup**
 *All herbs and spices are to taste. I did not measure these when making it.*
 
 *Notes*
